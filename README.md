@@ -6,17 +6,7 @@ Sou
 
 ✅TORNAR PARCEIRO DO CANAL
 
-INSTAGRAM ↣ https://www.instagram.com/invites/contact/?i=xgayrxsv5118&utm_content=n9xv3t8
-
-FACEBOOK ↣ https://www.facebook.com/profile.php?id=100087088767630
-
 TELEGRAM ↣ ⚡️https://t.me/+9cdym9gvPQ9iOWNh⚡️
-
-https://youtube.com/@chiknet
-
-https://sites.google.com/view/radioweb-chiknet/tv-mnpv?authuser=0
-
-Ajude o criador dessa animação!
 
 🔥https://sendpulse.com/br/?ref=8067280🏐
 
