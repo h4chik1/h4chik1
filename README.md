@@ -1,16 +1,21 @@
-### Hi there 👋
+👋óla 
+Sou
+**h4chik1/h4chik1** 
+💌 Se conecte comigo 💌
+✅TORNAR PARCEIRO DO CANAL
+INSTAGRAM ↣ https://www.instagram.com/invites/contact/?i=xgayrxsv5118&utm_content=n9xv3t8
+FACEBOOK ↣ https://www.facebook.com/profile.php?id=100087088767630
+TELEGRAM ↣ ⚡️https://t.me/+9cdym9gvPQ9iOWNh⚡️
+https://linktr.ee/radiochiknet
+ID: https://youtube.com/@radiochiknet
+https://youtube.com/@chiknet
+ID: https://youtube.com/@radiochiknet
+https://sites.google.com/view/radioweb-chiknet/tv-mnpv?authuser=0
+🔥 https://linktr.ee/radiochiknet.🏐
 
-<!--
-**h4chik1/h4chik1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+https://sendpulse.com/br/?ref=8067280
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+  <a href="https://github.com/h4chik1">
+  <img height="180em" src="https://github-readme-stats.vercel.app/api?username=h4chik1&show_icons=false&theme=dark&include_all_commits=true&count_private=true"/>
+</div>
