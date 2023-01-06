@@ -22,9 +22,9 @@ ID: https://youtube.com/@radiochiknet
 
 https://sites.google.com/view/radioweb-chiknet/tv-mnpv?authuser=0
 
-🔥 https://linktr.ee/radiochiknet.🏐
+Ajude o criador dessa animação!
 
-https://sendpulse.com/br/?ref=8067280
+🔥https://sendpulse.com/br/?ref=8067280🏐
 
 <div align="center">
   <a href="https://github.com/h4chik1">
