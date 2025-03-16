@@ -18,10 +18,6 @@ Ferramentas e tecnologias:
   <img width="41%" height="195px" src="https://github-readme-stats.vercel.app/api/top-langs/?username=h4chik1&layout=compact&hide_border=true&title_color=FFC107f&text_color=FFC107f&bg_color=0d1117" />
 </div>
 
-<div align="center">
-  <a href="https://github.com/h4chik1">
-  <img height="180em" src="https://github-readme-stats.vercel.app/api?username=h4chik1&show_icons=false&theme=dark&include_all_commits=true&count_private=true"/>
-</div>
   ##
  
 <div> 
