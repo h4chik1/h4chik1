@@ -12,6 +12,8 @@ TELEGRAM ↣ ⚡️https://t.me/+9cdym9gvPQ9iOWNh⚡️
 
 Ferramentas e tecnologias:
 
+<img width=100% src="https://capsule-render.vercel.app/api?type=waving&color=00BCD4&height=120&section=header"/>
+
 <div align="center">
   <a href="https://github.com/h4chik1">
   <img height="180em" src="https://github-readme-stats.vercel.app/api?username=h4chik1&show_icons=false&theme=dark&include_all_commits=true&count_private=true"/>
