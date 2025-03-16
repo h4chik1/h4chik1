@@ -18,7 +18,17 @@ Ferramentas e tecnologias:
   <img width="41%" height="195px" src="https://github-readme-stats.vercel.app/api/top-langs/?username=h4chik1&layout=compact&hide_border=true&title_color=FFC107f&text_color=FFC107f&bg_color=0d1117" />
 </div>
 
-  ##
+  ############################
+  [![Ashutosh's github activity graph](https://github-readme-activity-graph.vercel.app/graph?username=h4chik1&bg_color=000000&color=15e5a6&line=07e9a5&point=0a855c&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
+
+<p align="center">
+  <img src="https://github-profile-trophy.vercel.app/?username=h4chik1&theme=dracula&row=2&no-bg=true&column=3&margin-w=15&margin-h=15" />
+</p>
+
+<div align="center">  
+<a href="https://www.instagram.com/automacoescomerciais_/" target="_blank"><img src="https://img.shields.io/badge/-Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white"</a>
+</div> 
+  ############################
  
 <div> 
   <a href="https://www.youtube.com/channel/UCfW-p-CCNx3rcTrUiaicWKw" target="_blank"><img src="https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white" target="_blank"></a>
